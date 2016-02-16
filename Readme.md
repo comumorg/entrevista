@@ -1,4 +1,4 @@
-Originalmente pensada como Capone Entrevista, essas perguntas surgiram na necessidade minha e do granja de divertir e conhecer de uma forma diferente as pessoas que já conhecemos e novas pessoas!
+Originalmente pensada como Capone Entrevista, essas perguntas surgiram da necessidade minha e do granja de divertir e conhecer de uma forma diferente as pessoas que já conhecemos!
 
 ## Regras
 1. O contexto de cada pergunta é do entrevistado, não podendo assim explicar as perguntas
