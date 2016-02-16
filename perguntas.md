@@ -1,0 +1,84 @@
+## Perguntas
+- Como você quer que te chame durante a entrevista?
+- Você sabe o que significa seu nome de registro?
+- Qual ia ser seu nome se não fosse o nome que tem?
+- Quais são seus apelidos?
+- Pra você só é amanhã depois que você dorme ou depois que vira meia noite?
+- Qual sua cor favorita?
+- Você medita? Como?
+- Você já conseguiu ganhar alguma partida de War? E Munchkin?
+- Qual superpoder você tem? Qual superpoder gostaria de ter?
+- Além de carros voadores e roupas prateadas, o que falta pra admitirmos que o futuro chegou?
+- Qual é a comida que você melhor sabe cozinhar?
+- Numa refeição você come o que mais gosta primeiro, por último ou tudo misturado?
+- Qual é sua medida de sucesso?
+- Qual música você gostaria que tocasse agora?
+- Se tivesse um bilhete de teletransporte agora, pra onde viajaria?
+- Qual viagem você se lembra com carinho?
+- Qual seu signo? E Ascendente? E Lua?
+- Qual emoção você gostaria de controlar melhor?
+- Qual sua brincadeira favorita quando era criança?
+- Qual mania estranha você tinha quando criança? E agora?
+- Qual roupa você veste pra se sentir confortável?
+- Cinco características físicas que te atraem?
+- Cinco características não-físicas que te atraem?
+- Você tem tatuagem (ou cicatriz)? Me conta sobre uma delas.
+- Qual o próximo filme que você pretende assistir?
+- Você tem algum palpite sobre como vai morrer?
+- Qual o pior jeito de morrer pra você?
+- Como você se lava durante o banho?
+- Em qual casa de Hogwarts você acha que o chapéu seletor colocaria você?
+- Se pudesse dobrar um elemento, qual gostaria de dobrar? (água, terra, fogo, ar)
+- Qual série você gostaria que todas as pessoas assistissem?
+- Qual música descreve sua vida neste momento?
+- Como você descreve o movimento da sua vida?
+- Onde você nasceu e por onde você já morou?
+- Dos cinco sentidos (vopta), qual você acha que conseguiria abrir mão e qual acha que não conseguiria viver sem?
+- O que você pediria se tivesse 3 desejos agora?
+- Qual sua estação do ano favorita? E qual o dia da semana favorito?
+- Você ensaia o que vai falar antes de fazer uma ligação?
+- Qual risco você ainda não se permitiu correr? Por quê?
+- Qual seu doce favorito? → O que você gostaria de comer agora?
+- O que drena suas energias? E o que recarrega suas energias?
+- Se pudesse dar um rolê num universo fictício, qual seria?
+- Qual foi o último livro ou HQ que você leu?
+- Qual foi a última decisão que você se orgulha muito de ter tomado? E de qual se arrepende?
+- Qual seu cheiro favorito?
+- Qual conselho você recebeu que gostaria de passar adiante?
+- Se pudesse ter um conversa durante um jantar com qualquer pessoa do mundo que já viveu ou ainda vive, quem seria?
+- E se essa conversa fosse com uma personagem fictícia, com quem seria?
+- Do que você tem medo?
+- O que você aprendeu sobre o amor?
+- Qual sua orientação sexual? → Como você se classifica quanto a gênero e sexualidade?
+- Qual o lugar mais inusitado que você já transou?
+- Qual o maior número de pessoas que você já transou ao mesmo tempo?
+- Como você relaxa quando as coisas estão caóticas?
+- Se você tivesse um caminhão, que frase estaria no seu para-choque?
+- O que te motiva a sair da cama e fazer as coisas que faz?
+- Qual foi a última vez que você chorou? Você estava sozinha?
+- Qual foi a última vez que sua cabeça explodiu, metaforicamente?
+- Se você fosse regente de um aspecto da vida de todas as pessoas do planeta, o que regeria?
+- Se você morresse hoje sem chance de se comunicar com ninguém, o que mais se arrependeria de não ter dito a alguém? Por que não disse ainda?
+- Sua casa é destruída com tudo que você possui. Família e animais se salvam, e você tem a chance de salvar só uma coisa. O que seria?
+- Se pudesse presenciar qualquer momento do tempo-espaço do universo, o que gostaria de presenciar?
+
+
+## Rodada jogo rápido
+
+- Casa ou apartamento?
+- Consegue abrir os olhos debaixo d'água no mar?
+- Toddy ou nescau?
+- Gema do ovo: mole ou dura?
+- Casa ou compra uma bicicleta?
+- Gato ou cachorro?
+- Churros com recheio de chocolate ou doce de leite?
+- De dia ou de noite?
+- Praia ou montanha?
+- Mar ou cachoeira?
+- Sagu, pudim ou pavê?
+- De guarda-chuva ou de mãos dadas?
+- Já beijou hoje?
+- Cerveja ou destilado?
+- Feijão por cima do arroz ou arroz por cima do feijão?
+
+
